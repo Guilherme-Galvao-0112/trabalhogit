@@ -14,3 +14,34 @@ rg
 r
 g
 rg
+aaa
+a
+a
+a
+a
+a
+a
+a
+
+a
+
+
+
+One Piece 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Hunter x Hunter
+a
